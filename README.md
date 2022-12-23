@@ -5,3 +5,6 @@
 
 
 https://youtu.be/LjUyP56-VgQ        Funny Skit By MSc BSc Students | CHEP | PU | Punjab University | Lahore | Pakistan | Urdu / Hindi
+
+
+https://youtu.be/JLC1B5C7mGI                                        Funny Speech ever in urdu punjab university
